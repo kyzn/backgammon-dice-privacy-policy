@@ -1,4 +1,4 @@
-# Privacy Policy (EN)
+# "Backgammon Dice" Privacy Policy (EN)
 
 Last Updated: Sep 18, 2024
 
